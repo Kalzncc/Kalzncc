@@ -1,1 +1,1 @@
-An ICPC participant, and silver award winner of Asia region
+Chasing for master degree in IIE,CAS. 
