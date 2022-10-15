@@ -1,1 +1,1 @@
-Chasing for master degree in IIE,CAS. 
+Pursuing for master degree with IIE,CAS. 
